@@ -66,7 +66,7 @@
 
 - 💼 [LinkedIn](https://linkedin.com/in/boryslavdeputat)
 - 🌐 [Website](https://boryslavdeputat.com)
-- 📧 Email: boryslavdeputat@gmail.com
+- 📧 Email: info@boryslavdeputat.com
 
 ---
 
